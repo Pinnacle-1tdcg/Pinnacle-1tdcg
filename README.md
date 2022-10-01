@@ -1,4 +1,4 @@
-### Ola a todos, bem vindo a pagina da Pinnacle.
+### Olá a todos, bem vindo a pagina da Pinnacle.
 
 Grupo voltado a oferecer soluções de segurança para pequenas empresas e usuarios comuns.
 
