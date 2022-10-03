@@ -17,3 +17,11 @@ social medias
  
  Celular: (11) 97958-6346
  Email: pinnacle.1tdcg@proton.com
+ 
+ -----------------------------------------------------------------------------------------------------------------------------------------------------------------
+ 
+ Equipe:
+ Gustavo Diniz - RM94842
+ Leandro Ha - RM92833
+ Leonardo Oliveira - RM95393
+ Vinicius Poci - RM93914
